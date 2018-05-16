@@ -1,1 +1,10 @@
-# s10
+http://www.cptb7.com
+http://www.cqr48.com
+http://www.cs702.com
+http://www.ctffx.com
+http://www.ctggm.com
+http://www.ctkkb.com
+http://www.ctxxs.com
+http://www.ctyym.com
+http://www.cwbbh.com
+http://www.cwffg.com
